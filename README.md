@@ -11,4 +11,4 @@ Bài 5
 Bài 6
 ![Ảnh chụp Màn hình 2022-11-03 lúc 17 28 13](https://user-images.githubusercontent.com/70899746/199704009-09a52c11-27b0-4989-8d66-c6e635b500cd.png)
 Bài 7
-![Ảnh chụp Màn hình 2022-11-03 lúc 17 43 47](https://user-images.githubusercontent.com/70899746/199704124-47ab3c7d-b13a-4208-a00c-4a07c209957f.png)
+![Ảnh chụp Màn hình 2022-11-03 lúc 18 01 02](https://user-images.githubusercontent.com/70899746/199704544-fb0ec8d7-4c60-4c0e-af07-0315d6f66fd9.png)
